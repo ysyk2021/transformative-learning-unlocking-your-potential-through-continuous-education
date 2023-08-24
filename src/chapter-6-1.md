@@ -1,5 +1,3 @@
-Common Obstacles to Transformative Learning
-============================================================================
 
 Transformative learning can be a challenging but rewarding process. However, there are several common obstacles that individuals may face when engaging in transformative learning. In this chapter, we will explore some of these obstacles.
 

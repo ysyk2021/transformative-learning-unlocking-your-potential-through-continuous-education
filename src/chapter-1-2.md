@@ -1,5 +1,3 @@
-Definition of Transformative Learning
-==============================================================
 
 Transformative learning is a process of personal growth and change that occurs through continuous education and reflection. In this chapter, we will define transformative learning and explore its key characteristics.
 

@@ -1,5 +1,3 @@
-How to stay motivated and committed to continuous education
-============================================================================================
 
 Transformative learning is a challenging but rewarding process that requires commitment and perseverance. Along the way, learners may encounter obstacles that can derail their progress or motivation. In this chapter, we will explore techniques for overcoming obstacles and staying motivated and committed to continuous education.
 

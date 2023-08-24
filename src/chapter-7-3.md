@@ -1,5 +1,3 @@
-When to Adjust Your Strategy Based on Performance Data
-====================================================================================================
 
 Measuring and evaluating progress is essential for effective transformative learning. By tracking performance data, individuals can identify areas for improvement, adjust their strategies, and stay on track towards their goals. In this chapter, we will explore when to adjust your strategy based on performance data and how to effectively measure and evaluate progress.
 

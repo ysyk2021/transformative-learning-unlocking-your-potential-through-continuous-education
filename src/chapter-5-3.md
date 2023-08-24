@@ -1,5 +1,3 @@
-How to Give and Receive Feedback Effectively
-==================================================================================
 
 Building a support system is essential for achieving transformative learning and unlocking an individual's full potential. A support system can provide valuable feedback, guidance, and motivation, helping individuals stay on track and achieve their goals. In this chapter, we will explore how to give and receive feedback effectively.
 

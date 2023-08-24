@@ -1,4 +1,3 @@
-# Introduction
 
 The world is constantly changing, and in order to keep up with these changes, we must be willing to engage in continuous learning. Transformative learning, the process of using education to transform ourselves and our understanding of the world around us, can help us unlock our full potential as individuals and make a positive impact on society.
 

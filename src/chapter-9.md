@@ -1,5 +1,3 @@
-Chapter 9: Applying Transformative Learning to Personal Growth
-==============================================================
 
 Transformative learning is a powerful tool for achieving personal growth and transformation. In this chapter, we will explore the role of transformative learning in personal growth, as well as techniques for applying it to different areas of your life.
 

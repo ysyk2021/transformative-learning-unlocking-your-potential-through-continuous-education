@@ -1,5 +1,3 @@
-How to Use Technology to Enhance Your Learning Experience
-=======================================================================================================================
 
 Technology has revolutionized the way we learn, offering a range of tools and resources that can enhance transformative learning. In this chapter, we will explore how to use technology to enhance your learning experience, including online courses, podcasts, social media, and educational apps.
 

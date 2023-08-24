@@ -1,5 +1,3 @@
-Metrics for Tracking Success in Your Learning and Development
-===========================================================================================================
 
 In this chapter, we will explore metrics for tracking success in your learning and development. Measuring and evaluating progress is essential for achieving your goals and ensuring that your transformative learning journey is effective.
 

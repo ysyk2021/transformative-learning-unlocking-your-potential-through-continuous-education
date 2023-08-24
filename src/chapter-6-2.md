@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-==========================================================================
 
 In this chapter, we will explore some of the common obstacles that individuals may face when engaging in transformative learning and provide strategies for overcoming these obstacles.
 

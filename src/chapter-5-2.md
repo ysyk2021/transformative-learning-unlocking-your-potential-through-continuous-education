@@ -1,5 +1,3 @@
-Techniques for building a network of mentors, peers, and supporters
-=========================================================================================================
 
 Transformative learning is a challenging and rewarding process that requires support from others. Building a support system of mentors, peers, and supporters can provide learners with the guidance, feedback, and motivation they need to succeed. In this chapter, we will explore techniques for building a strong support system.
 

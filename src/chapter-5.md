@@ -1,5 +1,3 @@
-Chapter 5: Building a Support System
-====================================
 
 Building a support system is crucial for effective transformative learning. A support system can provide individuals with encouragement, feedback, and guidance throughout their learning journey. In this chapter, we will explore the importance of having a support system in transformative learning, techniques for building a network of mentors, peers, and supporters, and how to give and receive feedback effectively.
 

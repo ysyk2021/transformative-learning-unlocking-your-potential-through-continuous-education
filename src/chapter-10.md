@@ -1,5 +1,3 @@
-Chapter 10: Embracing Lifelong Learning
-=======================================
 
 Transformative learning is an ongoing process that requires a commitment to lifelong learning. In this chapter, we will explore the importance of lifelong learning in transformative learning, strategies for making continuous education a habit, and how to create a learning plan for the long term.
 

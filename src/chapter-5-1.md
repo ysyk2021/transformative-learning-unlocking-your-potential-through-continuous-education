@@ -1,5 +1,3 @@
-The importance of having a support system in transformative learning
-==========================================================================================================
 
 Transformative learning is a challenging and rewarding process that requires a strong support system. A support system can provide learners with the guidance, feedback, and motivation they need to succeed. In this chapter, we will explore the importance of having a support system in transformative learning.
 
