@@ -42,3 +42,4 @@
   - [How to create a learning plan for the long term](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

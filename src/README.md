@@ -8,3 +8,7 @@ In the pages that follow, you'll learn about the importance of embracing lifelon
 By embracing the power of education and committing to lifelong learning, you can unlock your full potential and make a positive impact on the world around you. Let's start this journey of transformative learning together!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
