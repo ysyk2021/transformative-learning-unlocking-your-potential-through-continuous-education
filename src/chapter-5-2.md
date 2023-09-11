@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Building a Network of Mentors, Peers, and Supporters
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for building a network of mentors, peers, and supporters to enhance the transformative learning process. Engaging with a diverse community of individuals who can provide guidance, support, and inspiration plays a crucial role in unlocking your potential through continuous education.
 

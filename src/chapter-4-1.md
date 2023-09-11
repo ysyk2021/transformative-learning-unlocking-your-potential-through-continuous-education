@@ -1,5 +1,4 @@
-Chapter 7: The Role of Different Learning Methods and Resources in Transformative Learning
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that different learning methods and resources play in transformative learning. As you embark on your journey of continuous education, it is essential to understand the diverse approaches and resources available to enhance your learning experience and unlock your full potential.
 

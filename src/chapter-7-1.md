@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Measuring and Evaluating Progress in Transformative Learning
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of measuring and evaluating progress in transformative learning. Effective measurement and evaluation methods provide individuals with valuable insights into their growth and development, allowing them to make informed decisions, track their progress, and optimize their learning experiences.
 

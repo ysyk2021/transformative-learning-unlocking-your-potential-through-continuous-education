@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Applying Transformative Learning to Your Current Job or Industry
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for applying transformative learning to your current job or industry. Transformative learning can revolutionize your professional life by fostering innovation, adaptability, and personal growth. By embracing transformative learning principles and practices, you can unlock your potential and thrive in your career.
 

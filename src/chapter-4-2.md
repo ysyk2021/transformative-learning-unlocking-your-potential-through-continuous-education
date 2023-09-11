@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Selecting the Most Effective Methods and Resources for Your Goals
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for selecting the most effective methods and resources to support your transformative learning journey. Choosing the right tools, techniques, and resources is crucial for maximizing the impact of continuous education on your personal and professional growth.
 

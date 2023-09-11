@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Overcoming Obstacles in Transformative Learning
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to help you overcome obstacles that may arise during your transformative learning journey. While continuous education offers great potential for personal growth and development, various challenges can hinder progress. By implementing these strategies, you can navigate and overcome obstacles, unlocking your full potential in transformative learning.
 

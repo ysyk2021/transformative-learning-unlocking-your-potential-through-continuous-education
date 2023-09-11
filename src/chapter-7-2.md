@@ -1,5 +1,4 @@
-Chapter 8: Metrics for Tracking Success in Your Learning and Development
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of metrics for tracking success in your learning and development journey. Metrics provide valuable insights and quantifiable measures that help you assess progress, identify areas for improvement, and stay motivated on your path to unlocking your potential through continuous education.
 

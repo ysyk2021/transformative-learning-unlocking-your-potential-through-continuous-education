@@ -1,5 +1,4 @@
-Chapter 9: When to Adjust Your Strategy Based on Performance Data
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of using performance data to guide strategic adjustments in your learning journey. Analyzing and interpreting data allows you to make informed decisions and adapt your learning strategies when necessary, maximizing the effectiveness of your continuous education and transformative learning process.
 

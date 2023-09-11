@@ -1,5 +1,4 @@
-Chapter 12: Creating a Learning Plan for the Long Term
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to create a comprehensive learning plan for the long term. A well-designed learning plan provides structure, direction, and motivation as you embark on your continuous education journey, unlocking your potential along the way.
 

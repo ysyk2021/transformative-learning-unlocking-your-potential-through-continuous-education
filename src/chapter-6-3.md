@@ -1,5 +1,4 @@
-Chapter 10: How to Stay Motivated and Committed to Continuous Education
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies and techniques to help you stay motivated and committed to your journey of continuous education. Sustaining motivation is crucial for long-term success in transformative learning, as it requires dedication, perseverance, and a genuine passion for self-improvement. By implementing these strategies, you can maintain your momentum, overcome obstacles, and unlock your full potential.
 

@@ -1,5 +1,4 @@
-Chapter 8: Common Obstacles to Transformative Learning
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common obstacles that individuals may encounter on their journey of transformative learning. Recognizing and understanding these obstacles is essential for overcoming them and maximizing the potential for personal growth and development.
 

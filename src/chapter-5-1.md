@@ -1,5 +1,4 @@
-Chapter 10: The Importance of Having a Support System in Transformative Learning
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of having a support system in transformative learning. A strong support system can provide encouragement, guidance, and resources that fuel your growth and empower you to unlock your potential through continuous education.
 

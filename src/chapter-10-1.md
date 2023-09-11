@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Lifelong Learning in Transformative Learning
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the significance of lifelong learning in transformative learning. Lifelong learning is a mindset and practice that fosters continuous growth, development, and transformation throughout our lives. Understanding the importance of lifelong learning is essential for unlocking our potential through continuous education.
 

@@ -1,5 +1,4 @@
-Chapter 10: How to Leverage Your New Skills and Knowledge to Advance Your Career
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for leveraging your new skills and knowledge acquired through transformative learning to advance your career. Transformative learning equips you with the tools and insights necessary to adapt, grow, and succeed in today's dynamic work environment. By effectively leveraging your newfound expertise, you can open doors to exciting opportunities and propel your professional growth.
 
